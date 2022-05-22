@@ -1,2 +1,2 @@
-"Life is change. Growth is optional. Choose wisely."
--Karen Clark
+"We cannot change our memories, but we can change their meaning and the power they have over us."
+-David Seamans
