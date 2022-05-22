@@ -1,2 +1,2 @@
-"A life spent making mistakes is not only more honourable but more useful than a life spent in doing nothing."
--Bernard Shaw
+"Thousands of candles can be lighted from a single candle, and the life of the candle will not be shortened. Happiness never decreases by being shared."
+-Buddha
