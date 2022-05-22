@@ -1,2 +1,2 @@
-"Thousands of candles can be lighted from a single candle, and the life of the candle will not be shortened. Happiness never decreases by being shared."
--Buddha
+"The really unhappy person is the one who leaves undone what they can do, and starts doing what they don't understand; no wonder they come to grief."
+-Johann Wolfgang von Goethe
