@@ -1,2 +1,2 @@
-"The exercise of an extraordinary gift is the supremest pleasure in life."
--Mark Twain
+"To climb steep hills requires a slow pace at first."
+-William Shakespeare
