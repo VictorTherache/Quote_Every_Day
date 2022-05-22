@@ -1,2 +1,2 @@
-"To climb steep hills requires a slow pace at first."
--William Shakespeare
+"Our greatness lies not so much in being able to remake the world as being able to remake ourselves."
+-Mahatma Gandhi
