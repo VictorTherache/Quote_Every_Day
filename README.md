@@ -1,2 +1,2 @@
-"Our greatness lies not so much in being able to remake the world as being able to remake ourselves."
--Mahatma Gandhi
+"It is only with the heart that one can see rightly, what is essential is invisible to the eye."
+-Antoine de Saint-Exupery
