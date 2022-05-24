@@ -1,2 +1,2 @@
-"It is only with the heart that one can see rightly, what is essential is invisible to the eye."
--Antoine de Saint-Exupery
+"Try not to become a man of success, but rather try to become a man of value."
+-Albert Einstein
