@@ -1,2 +1,2 @@
-"Try not to become a man of success, but rather try to become a man of value."
--Albert Einstein
+"Remember that sometimes not getting what you want is a wonderful stroke of luck."
+-Dalai Lama
