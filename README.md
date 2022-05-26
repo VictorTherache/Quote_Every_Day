@@ -1,2 +1,2 @@
-"Remember that sometimes not getting what you want is a wonderful stroke of luck."
--Dalai Lama
+"Most folks are about as happy as they make up their minds to be."
+-Abraham Lincoln
