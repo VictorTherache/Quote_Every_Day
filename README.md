@@ -1,2 +1,2 @@
-"Know, first, who you are, and then adorn yourself accordingly."
--Epictetus
+"Whenever something negative happens to you, there is a deep lesson concealed within it."
+-Eckhart Tolle
