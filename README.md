@@ -1,2 +1,2 @@
-"If you want your life to be more rewarding, you have to change the way you think."
--Oprah Winfrey
+"No one saves us but ourselves. No one can and no one may. We ourselves must walk the path."
+-Buddha
