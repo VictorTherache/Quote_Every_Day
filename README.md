@@ -1,2 +1,2 @@
-"No one saves us but ourselves. No one can and no one may. We ourselves must walk the path."
--Buddha
+"Real magic in relationships means an absence of judgement of others."
+-Wayne Dyer
