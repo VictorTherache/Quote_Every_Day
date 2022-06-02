@@ -1,2 +1,2 @@
-"Real magic in relationships means an absence of judgement of others."
--Wayne Dyer
+"Work while you have the light. You are responsible for the talent that has been entrusted to you."
+-Henri-Frederic Amiel
