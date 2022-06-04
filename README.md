@@ -1,2 +1,2 @@
-"Anything you really want, you can attain, if you really go after it."
--Wayne Dyer
+"Look forward to spring as a time when you can start to see what nature has to offer once again."
+-Byron Pulsifer
