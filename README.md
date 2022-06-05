@@ -1,2 +1,2 @@
-"Look forward to spring as a time when you can start to see what nature has to offer once again."
--Byron Pulsifer
+"The height of your accomplishments will equal the depth of your convictions."
+-William Scolavino
