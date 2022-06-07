@@ -1,2 +1,2 @@
-"I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can."
--Bernard Shaw
+"Autumn is a second spring when every leaf is a flower."
+-Albert Camus
