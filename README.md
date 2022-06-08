@@ -1,2 +1,2 @@
-"Autumn is a second spring when every leaf is a flower."
--Albert Camus
+"A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success."
+-Elbert Hubbard
