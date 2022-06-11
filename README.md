@@ -1,2 +1,2 @@
-"You must do the things you think you cannot do."
--Eleanor Roosevelt
+"You can never cross the ocean unless you have the courage to lose sight of the shore."
+-null
