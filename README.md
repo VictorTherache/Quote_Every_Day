@@ -1,2 +1,2 @@
-"Victory belongs to the most persevering."
--Napoleon Bonaparte
+"Always be smarter than the people who hire you."
+-Lena Horne
