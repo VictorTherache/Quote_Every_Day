@@ -1,2 +1,2 @@
-"Always be smarter than the people who hire you."
--Lena Horne
+"You may only be someone in the world, but to someone else, you may be the world."
+-null
