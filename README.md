@@ -1,2 +1,2 @@
-"Living at risk is jumping off the cliff and building your wings on the way down."
--Ray Bradbury
+"If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives."
+-Vince Lombardi
