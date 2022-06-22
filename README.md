@@ -1,2 +1,2 @@
-"Give thanks for the rain of life that propels us to reach new horizons."
--Byron Pulsifer
+"Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth."
+-Arthur Conan Doyle
