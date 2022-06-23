@@ -1,2 +1,2 @@
-"Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth."
--Arthur Conan Doyle
+"For everything that lives is holy, life delights in life."
+-William Blake
