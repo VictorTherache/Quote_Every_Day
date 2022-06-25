@@ -1,2 +1,2 @@
-"Just as a candle cannot burn without fire, men cannot live without a spiritual life."
--Buddha
+"Goals are the fuel in the furnace of achievement."
+-Brian Tracy
