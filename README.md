@@ -1,2 +1,2 @@
-"To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do."
--Kahlil Gibran
+"The world has the habit of making room for the man whose actions show that he knows where he is going."
+-Napoleon Hill
