@@ -1,2 +1,2 @@
-"The world has the habit of making room for the man whose actions show that he knows where he is going."
--Napoleon Hill
+"No snowflake in an avalanche ever feels responsible."
+-Voltaire
