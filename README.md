@@ -1,2 +1,2 @@
-"No snowflake in an avalanche ever feels responsible."
--Voltaire
+"Do more than dream: work."
+-William Arthur Ward
