@@ -1,2 +1,2 @@
-"You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life."
--Albert Camus
+"Great are they who see that spiritual is stronger than any material force, that thoughts rule the world."
+-Ralph Emerson
