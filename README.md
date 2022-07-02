@@ -1,2 +1,2 @@
-"Great are they who see that spiritual is stronger than any material force, that thoughts rule the world."
--Ralph Emerson
+"Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible."
+-Maya Angelou
