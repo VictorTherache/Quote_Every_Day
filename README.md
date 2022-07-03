@@ -1,2 +1,2 @@
-"Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible."
--Maya Angelou
+"Learn wisdom from the ways of a seedling. A seedling which is never hardened off through stressful situations will never become a strong productive plant."
+-Stephen Sigmund
