@@ -1,2 +1,2 @@
-"Learn wisdom from the ways of a seedling. A seedling which is never hardened off through stressful situations will never become a strong productive plant."
--Stephen Sigmund
+"If you get up one more time than you fall, you will make it through."
+-null
