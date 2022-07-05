@@ -1,2 +1,2 @@
-"If you get up one more time than you fall, you will make it through."
--null
+"The poor man is not he who is without a cent, but he who is without a dream."
+-Harry Kemp
