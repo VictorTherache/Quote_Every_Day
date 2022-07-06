@@ -1,2 +1,2 @@
-"The poor man is not he who is without a cent, but he who is without a dream."
--Harry Kemp
+"Kind words can be short and easy to speak but their echoes are truly endless."
+-Mother Teresa
