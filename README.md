@@ -1,2 +1,2 @@
-"Kind words can be short and easy to speak but their echoes are truly endless."
--Mother Teresa
+"With the realization of ones own potential and self-confidence in ones ability, one can build a better world."
+-Dalai Lama
