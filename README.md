@@ -1,2 +1,2 @@
-"Good timber does not grow with ease; the stronger the wind, the stronger the trees."
--J. Willard Marriott
+"Action is the foundational key to all success."
+-Pablo Picasso
