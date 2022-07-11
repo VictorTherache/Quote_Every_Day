@@ -1,2 +1,2 @@
-"Responsibility is not inherited, it is a choice that everyone needs to make at some point in their life."
--Byron Pulsifer
+"Learn wisdom from the ways of a seedling. A seedling which is never hardened off through stressful situations will never become a strong productive plant."
+-Stephen Sigmund
