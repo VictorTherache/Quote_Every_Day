@@ -1,2 +1,2 @@
-"The world is always in movement."
--V. Naipaul
+"Winners have simply formed the habit of doing things losers don't like to do."
+-Albert Gray
