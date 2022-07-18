@@ -1,2 +1,2 @@
-"It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something."
--Franklin D. Roosevelt
+"Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment."
+-Buddha
