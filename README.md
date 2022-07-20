@@ -1,2 +1,2 @@
-"The most decisive actions of our life... are most often unconsidered actions."
--Andre Gide
+"A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves."
+-Lao Tzu
